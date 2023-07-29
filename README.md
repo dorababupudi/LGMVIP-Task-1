@@ -20,8 +20,7 @@ Our goal is to help others to gain personal and professional skills in technical
 
 MY Virtual Internship Experience.
 
-Hello #connections
-
+Hey my dear github visiters!!
 This Blog is about my experience as a DATA SCIENCE Intern in the Virtual Internship Program (VIP) at LetsGrowMore (LGM) Community which is held in July 2023.
 Participating in the Let's Grow More Remote Internship has been an enriching experience, despite the physical distance.
 During this internship I have completed 4 tasks,those I've posted on LinkedIn profile.
