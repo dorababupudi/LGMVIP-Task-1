@@ -18,6 +18,16 @@ LETSGROWMORE is all about creating opportunities for leadership development, lea
 
 Our goal is to help others to gain personal and professional skills in technical and non-technical areas. The purpose is to provide a structure through which students may exercise their right to freely associate in pursuit of a common purpose or goal.
 
+MY Virtual Internship Experience.
+
+Hello #connections
+
+This Blog is about my experience as a DATA SCIENCE Intern in the Virtual Internship Program (VIP) at LetsGrowMore (LGM) Community which is held in July 2023.
+Participating in the Let's Grow More Remote Internship has been an enriching experience, despite the physical distance.
+During this internship I have completed 4 tasks,those I've posted on LinkedIn profile.
+I would like to thank Aman Kesarwani Kesarwani and the team of LetsGrowMore (LGM) Community (LGM) Community for giving me this opportunity to enhance my skills and work on amazing projects.
+
+The overall internship experience was awesome. This helped me to enhance my skill set.
 
 
 
